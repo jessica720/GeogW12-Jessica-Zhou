@@ -1,1 +1,1 @@
-# GeogW12-Jessica-Zhou
+Map of My Favorite Destinations
